@@ -1,1 +1,1 @@
-https://mrankkiiiii.github.io/resume/
+https://gauravbnsal.github.io/gaurav/
